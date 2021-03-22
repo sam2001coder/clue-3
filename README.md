@@ -16,4 +16,4 @@ ARE YOU A SMART ENOUGH TO GET THIS CLUE **
 
 
 
-<a href="https://linkenc.net/EnJyzgXVvAStu5jbu4b9hVrNkblMtV-LB2WOJbaRZPgyHFuaDE7jYWTNcgD2H3pfv5R.kl0zkeOibsCTy-GbeuRJcpHuXdjjA!"> <button> ENTER THE PASSWORD </button></a>
+<a href="https://linkenc.net/Vrxo1Mp2U91uJJIULNFxkRDTQX~NDt-Ilir7kAHObjKGcxj.IUNBjXe8g.3v83O4sAJKzB5XscN5AbzeW-uTd0z07QGJX.0DA!"> <button> ENTER THE PASSWORD </button></a>
